@@ -4,4 +4,7 @@
 
 ### Grupo
 
-#### Dennys Leite Julião Laura Roni Rocio Leonnardo Taxa Machado de Almeida \nSofia Liuth Costa
+#### Dennys Leite Julião
+Laura Roni Rocio 
+Leonnardo Taxa Machado de Almeida 
+Sofia Liuth Costa
